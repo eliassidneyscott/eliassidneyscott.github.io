@@ -1,1 +1,0 @@
-# eliassidneyscott.github.io
